@@ -1,2 +1,2 @@
-legit sl3000 400 euro
+legit affordable sl3000s
 contact lossui011@proton.me
